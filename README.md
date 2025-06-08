@@ -1,1 +1,1 @@
-A doctoral student interested in aerospace, AI and mechanics.
+A doctoral student interested in aerospace, AI, and mechanics.
